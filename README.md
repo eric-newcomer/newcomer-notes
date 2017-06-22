@@ -1,1 +1,1 @@
-# ericnewcoder.github.io
+# eric-newcomer.github.io
